@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Todoist for macOS integration with best Todoist for macOS Integration | widgets + auto-sync. Featuring widgets and auto-sync, it's the best choice for macOS users.
 
 
 
